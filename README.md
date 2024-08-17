@@ -3,6 +3,4 @@ A simple project for beginners which can be done easily.
 
 The Circuit diagram will be uploaded soon!
 
-For 
-
 For queries contact:- +91 9892977581
